@@ -46,9 +46,9 @@ I am proficient in industry-standard editing software, possess a keen eye for de
 
 - **Cameras & Equipment**:
   - **RED DSMC2 HELIUM 8K S35** 📷
-  - **Canon EOS C300 Mark III** 📸
-  - **Sony Alpha 7S III** 🎥
-  - **DJI Ronin 2 Gimbal** 🎮
+  - **Canon EOS R6 Mark** 📸
+  - **Sony Alpha 9R III** 🎥
+  - **DJI RS4** 🎮
 
 ---
 
