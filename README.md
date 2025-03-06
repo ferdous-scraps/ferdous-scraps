@@ -62,16 +62,16 @@ As a freelance video editor and filmmaker, I have worked with a variety of clien
 - **Color Grading**: Delivered cinematic, color-graded content tailored to each project's visual tone.
 - **Motion Graphics**: Designed and implemented custom motion graphics to enhance storytelling.
 
-### Senior Video Editor & Filmmaker at [Company Name]
-**(2016 - 2018)**  
+### Senior Video Editor & Filmmaker at Minions Studio
+**(2024 - Present)**  
 As a senior video editor, I led editing teams and managed the post-production process for various multimedia projects. My work included:
 
 - **Collaborating with Directors**: Translating creative visions into visual narratives.
 - **Editing Commercials & Corporate Content**: Delivering polished final videos for advertising campaigns and corporate presentations.
 - **Client Interaction**: Regularly communicated with clients to ensure their goals were met and exceeded.
 
-### Assistant Director & Editor at [Company Name]
-**(2014 - 2016)**  
+### Assistant Director & Editor at Maverik Studio
+**(2015 - 2022)**  
 I began my filmmaking career as an assistant director and editor, where I gained hands-on experience in both creative and technical aspects of production. My role included:
 
 - **Assisting with Camera Work**: Helping set up shots and camera movements on set.
@@ -88,10 +88,6 @@ I began my filmmaking career as an assistant director and editor, where I gained
 - **JCI Dhaka Aspirant Documentary**  
   _Role: Filmmaker & Editor_  
   This documentary captured the story of hardworking peope of street . I directed, shot, and edited the project, ensuring the story was told with depth and authenticity.
-
-- **[Project Title 3]**  
-  _Role: Editor_  
-  A corporate video for [company], where I worked to refine the pacing and tone, ensuring that the message resonated with the target audience while maintaining brand integrity.
 
 ---
 
