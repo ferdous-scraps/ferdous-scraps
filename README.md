@@ -81,13 +81,13 @@ I began my filmmaking career as an assistant director and editor, where I gained
 
 ## Featured Projects ⭐
 
-- **[Project Title 1]**  
-  _Role: Lead Editor_  
-  A [short film/music video/advertisement], this project challenged me to create a fast-paced, emotionally engaging story with stunning visuals. I was responsible for editing, color grading, and final sound design.
+- **Ramadan Happy Club**  
+  _Role: Lead Editor + Cinematographer_  
+  A documentry, this project challenged me to create a fast-paced, emotionally engaging story with stunning visuals. I was responsible for editing, color grading, and final sound design.
 
-- **[Project Title 2]**  
+- **JCI Dhaka Aspirant Documentary**  
   _Role: Filmmaker & Editor_  
-  This documentary captured the story of [topic]. I directed, shot, and edited the project, ensuring the story was told with depth and authenticity.
+  This documentary captured the story of hardworking peope of street . I directed, shot, and edited the project, ensuring the story was told with depth and authenticity.
 
 - **[Project Title 3]**  
   _Role: Editor_  
@@ -99,10 +99,8 @@ I began my filmmaking career as an assistant director and editor, where I gained
 
 If you are looking for a passionate, creative, and reliable video editor and filmmaker, I would love to collaborate with you! Feel free to reach out to me for project inquiries, creative partnerships, or freelance work.
 
-- Email: [your-email@example.com] 📧
-- Portfolio: [Link to Portfolio] 🌐
-- LinkedIn: [Your LinkedIn Profile] 🔗
-- Instagram: [Your Instagram Profile] 📸
+- Email: mdmustafiz17@gmail.com 📧
+- Instagram: mustafiz-scrap 📸
 
 ---
 
